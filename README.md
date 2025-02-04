@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime, Manuwa and music. 
 - 🌱 I’m currently learning about Digital Media and Marketing. 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me at williamsamoykay@gmail.com
+- 📫 How to reach me williamsamoykay@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: I love every genres of Manuwa. 
 
