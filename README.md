@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me williamsamoykay@gmail.com
 - 😄 Pronouns: she
-- ⚡ Fun fact: I love every genres of Manuwa. 
+- ⚡ Fun fact: I love every genres of Manhwa. 
 
 <!---
 Amoy-kay/Amoy-kay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
