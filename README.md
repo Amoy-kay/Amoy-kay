@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Amoy-kay
 - 👀 I’m interested in anime, Manuwa and music. 
 - 🌱 I’m currently learning about Digital Media and Marketing. 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Graphic design
 - 📫 How to reach me williamsamoykay@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: I love every genres of Manhwa. 
